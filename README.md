@@ -1,6 +1,6 @@
-### Hi there 👋
+Olá, sou o GeterTel! 👋🎼🎵🎶
 
-Olá, sou o GeterTel!
+
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
