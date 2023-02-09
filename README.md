@@ -1,4 +1,4 @@
-Olá, sou o Geter Campos de Cerqueira! 👋🎼🎵🎶
+Olá, meu nome é Geter 👋🎼🎵🎶
 
 
 Cursando: Perícia Forense computacional - Uiversidade-Cruzeiro do Sul 
