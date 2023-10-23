@@ -1,4 +1,4 @@
-Olá, meu nome é Geter 👋🎼🎵🎶
+Olá, meu nome é Geter 
 
 
 Cursando: Análise e Desenvolvimento de Sistemas - Universidade Estácio
