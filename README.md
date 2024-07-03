@@ -1,6 +1,6 @@
-Olá, meu nome é Geter 
+Nome:  Geter 
 
 
-Cursando: Análise e Desenvolvimento de Sistemas - Universidade Estácio
+Cursando: ADS 
 
 E-mail: geter3@hotmail.com 
